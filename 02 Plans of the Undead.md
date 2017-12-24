@@ -1,4 +1,4 @@
-# Plans of the undead
+# Plans of the Undead
 
 They both headed towards the stables to take their horses. They reached the stables situated at the southers side of the castle. There were thousands of horses in the sheds.
 

@@ -1,3 +1,5 @@
+# Plans of the undead
+
 They both headed towards the stables to take their horses. They reached the stables situated at the southers side of the castle. There were thousands of horses in the sheds.
 
 "Take whichever horse you like", said Jake, moving towards a black, shiny horse. "Huh? Ok", replied Norton. Norton took a white horse which has blonde hair on its back. "Norton, lead the path to the graveyard", said Jake. Norton nodded and they both mounted the horses and exited the castle premises.
